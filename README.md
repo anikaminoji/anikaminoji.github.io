@@ -1,1 +1,0 @@
-# anikaminoji.github.io
